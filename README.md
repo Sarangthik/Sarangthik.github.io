@@ -1,1 +1,0 @@
-# Sarangthik.github.io
